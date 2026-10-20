@@ -1,0 +1,1 @@
+Tämä on tulevaa opintojakso projektia varten.
